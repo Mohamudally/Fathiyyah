@@ -1,2 +1,0 @@
-# Fathiyyah
-A freelancer
